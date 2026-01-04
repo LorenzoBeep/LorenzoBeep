@@ -4,7 +4,7 @@
 - 👍 I am trying to escape my parents :D
 - 🤔 I’m looking for help with having friends. :{
 - 💬 Ask me about anything. Almost anything. ^o^
-- 💭 How to reach me... Well, don't? :/
+- 💭 How to reach me... Well, I don't know, Discord? :/
 - 🗣️ Pronouns are he/him.
 - 🇮🇹 I am Italian! :P
 
