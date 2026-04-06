@@ -8,4 +8,6 @@
 - 🗣️ Pronouns are he/him.
 - 🇮🇹 I am Italian! :P
 
+<sup><sub>Look, for everyone that says that I'm not fine because of the parents and stuff, I AM fine.</sub></sup> 
+
 ![This is, uh, me! Yeah, obviously.](https://github.com/LorenzoBeep/LorenzoBeep/blob/main/images%2Fimg1.jpg) 
